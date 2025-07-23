@@ -1,1 +1,1 @@
-# We're Solana Beaverzz
+# We're Solana Beavers!
